@@ -1,1 +1,1 @@
-# Aimable-AI-dictionary-
+Aimable AI-
